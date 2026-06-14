@@ -90,7 +90,7 @@
 
 🏛️ **BE Computer Science Engineering**  
 Sardar Raja College of Engineering, Tirunelveli  
-2022 – 2026
+2024 – 2028
 
 ---
 
